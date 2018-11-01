@@ -10,4 +10,4 @@ Iki sek belajaran jek urung pro. sik otewe. hehe. Salah bener ngko di koreksi ya
 
 ## Terus piye ?
 
-Sak mono sik... ngko di update hehe :D
+Sak mono sik... ngko di update hehe :laughing:
